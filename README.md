@@ -4,6 +4,9 @@
 
 • 🔭 I’m currently working on SakuraCommunity
 
-• You can contact me on DISCORD : Gabriel_#4495
+• 📨 You can contact me on DISCORD : Gabriel_#4495
                 
-• I use these coding languages: Java ☕ & JS !
+• 💻 I use these coding languages: Java ☕ & JS !
+
+
+     »»» Goodbye and see you soon I hope 👋
