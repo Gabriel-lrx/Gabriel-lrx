@@ -2,7 +2,7 @@
 
 
 
-• 🔭 I’m currently working on FabioSMP !
+• 🔭 I’m currently working on SinabsySMP !
 
 • 📨 You can contact me on DISCORD : Gabriel_#4495
                 
